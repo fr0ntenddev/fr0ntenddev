@@ -1,1 +1,1 @@
-building rage trade
+building [rage trade](https://www.rage.trade)
